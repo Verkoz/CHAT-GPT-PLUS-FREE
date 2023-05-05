@@ -30,8 +30,8 @@ https://metaproxies.net/?r=un1dWPnZ6K
 
 
 
-
-
+## SPONSOR CLYDE (DISCORD AI CHATBOT)
+https://discord.gg/BTzCaghJ3Y
 
 
 
